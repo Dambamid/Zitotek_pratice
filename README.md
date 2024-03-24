@@ -1,1 +1,1 @@
-# Zitotek_pratice
+# Ziyotek_practice
